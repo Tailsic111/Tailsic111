@@ -4,4 +4,4 @@
 
 See me fail at being a Github user:
 
-[![Anurag's github stats](https://github-readme-stats.vercel.app/api?username=Tailsic111)](https://github.com/anuraghazra/github-readme-stats)
+![GitHub Stats](https://github-readme-stats.vercel.app/api?username=Tailsic111&theme=dark)
