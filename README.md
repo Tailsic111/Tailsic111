@@ -13,3 +13,6 @@ NSFW (It just don't make me feel comfortable for obvious reasons)
 Cycba (She literally went Ms. Manipulative mode and committed a pseudocide, she also did bad things and "apologized" until she got caught)
 
 Why I did not include Mayo is because she changed and is a better person, so she can interact if she ever unblocks me.
+
+
+Also, I feel really uncomfortable using my actual OC (if you can even call a yellow sonic recolor with blue stripes original) because it looks terrible so I just use a jokish version. Also I have a bambisona that I never used named Bambux. I wish I used him more often.
