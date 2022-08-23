@@ -12,6 +12,8 @@ NSFW (It just don't make me feel comfortable for obvious reasons)
 
 Cycba (She literally went Ms. Manipulative mode and committed a pseudocide, she also did bad things and "apologized" until she got caught)
 
+Theoyeah (or any hypocrite in general)
+
 Why I did not include Mayo is because she changed and is a better person, so she can interact if she ever unblocks me.
 
 
