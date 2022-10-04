@@ -14,7 +14,6 @@ Cycba (She literally went Ms. Manipulative mode and committed a pseudocide, she 
 
 Theoyeah (or any hypocrite in general)
 
-Why I did not include Mayo is because she changed and is a better person, so she can interact if she ever unblocks me.
-
+Most of all, Luke242014. Luke, if you're reading this, go touch some grass, threatening to get my Scratch account banned does not do anything, it only makes you a bad person.
 
 Also, I feel really uncomfortable using my actual OC (if you can even call a yellow sonic recolor with blue stripes original) because it looks terrible so I just use a jokish version. Also I have a bambisona that I never used named Bambux. I wish I used him more often.
